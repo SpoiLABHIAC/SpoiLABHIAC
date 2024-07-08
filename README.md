@@ -1,5 +1,5 @@
 - 👋 Hi, I’m @SpoiLABHIAC
-- 👀 I’m interested in Esports,coding.
+- 👀 I’m interested in coding,Esports,.
 - 🌱 I’m currently learning computer science engg
 - 💞️ I’m looking to collaborate on ...
 - 📫 How to reach me: channappaabhishek68@gmail.com
